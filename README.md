@@ -1,1 +1,0 @@
-# App-privacy-policy
